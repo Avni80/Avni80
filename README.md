@@ -6,4 +6,4 @@
 - 💬 Ask me about my expirence at IBM
 - 📫 Mail me - avantik2@buffalo.edu
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am an Instagram Influencer
+- ⚡ Fun fact: I am also an Instagram Influencer
